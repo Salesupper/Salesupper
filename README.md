@@ -13,7 +13,6 @@
 
 - ⚡ Fun fact **I like going to the movies with my friends**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
